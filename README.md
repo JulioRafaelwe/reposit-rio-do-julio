@@ -1,1 +1,1 @@
-# reposit-rio-do-julio
+# repositorio-do-julio
